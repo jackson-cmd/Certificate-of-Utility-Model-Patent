@@ -5,3 +5,4 @@ If you want to use for commercial use, please email me(wang8042@umn.edu).
 
 If you want to see English version, only first page was provided(Auto translator, some error occurs).
 If you want more pages, please contact me. 
+Screenshot is the English version, other jpg photos are chinese version.
